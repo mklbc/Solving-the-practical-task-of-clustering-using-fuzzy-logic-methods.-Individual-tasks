@@ -1,0 +1,1 @@
+# Solving-the-practical-task-of-clustering-using-fuzzy-logic-methods.-Individual-tasks
