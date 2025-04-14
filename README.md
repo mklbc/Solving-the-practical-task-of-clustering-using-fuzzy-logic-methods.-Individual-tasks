@@ -1,1 +1,1 @@
-# Solving-the-practical-task-of-clustering-using-fuzzy-logic-methods.-Individual-tasks
+# Solving-the-practical-task-of-clustering-using-fuzzy-logic-methods.-Individual-tasks[Solving the practical task of clustering using fuzzy logic methods. Individual tasks (2).pdf](https://github.com/user-attachments/files/19738427/Solving.the.practical.task.of.clustering.using.fuzzy.logic.methods.Individual.tasks.2.pdf)
